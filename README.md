@@ -17,4 +17,5 @@
 3. Или посмотрите PDF-версию
 
 ## Связаться со мной
-[t.me/katslvb]
+- **Telegram:** [@katslvb](https://t.me/katslvb)
+- **Email:** [ek.rykova.09@gmail.com](mailto:ek.rykova.09@gmail.com)
