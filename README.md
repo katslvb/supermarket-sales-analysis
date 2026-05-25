@@ -31,4 +31,4 @@
 
 ## Связаться со мной
 - **Telegram:** [@katslvb](https://t.me/katslvb)
-- **Email:** [ek.rykova.09@gmail.com](mailto:ek.rykova.09@gmail.com)
+- **Email:** [ek.rykova.09@gmail.com](https://mail.google.com/mail/?view=cm&fs=1&to=ek.rykova.09@gmail.com)
